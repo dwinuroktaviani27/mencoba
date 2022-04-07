@@ -1,1 +1,0 @@
-# mencobaa lagi yuk
